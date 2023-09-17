@@ -1,4 +1,8 @@
 ## Welcome to PvPClub 🚀
+We're a brand new minecraft pvp network established in 2023. 
+
+Join our discord server to keep in track with what's going on!
+🔗 __https://discord.pvpclub.club__
 
 <!--
 
